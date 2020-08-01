@@ -1,0 +1,1 @@
+Folder kde študujem jsko a skúšam čo sa dá
